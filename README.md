@@ -3,15 +3,15 @@
 请收藏此页面（重要）
 影院站长建议狼友Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 
-[影院最新地址一 点击此处](https://50szhao.com/) 
+[影院最新地址一 点击此处](https://5zsxz.com/) 
 
-[影院最新地址二 点击此处](https://59mkao.com/) 
+[影院最新地址二 点击此处](https://5ygdk.com/) 
 
-[影院最新地址三 点击此处](https://56xying.com/) 
+[影院最新地址三 点击此处](https://5yawu.com/) 
 
-[影院最新地址四 点击此处](https://54uruo.com/) 
+[影院最新地址四 点击此处](https://5xvqc.com/) 
 
-[影院最新地址五 点击此处](https://53izhun.com/) 
+[影院最新地址五 点击此处](https://5xbfw.com/) 
 
 影院提醒您请注意，永久地址一定要加https
 
