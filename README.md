@@ -3,15 +3,15 @@
 请收藏此页面（重要）
 影院站长建议狼友Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 
-[影院最新地址一 点击此处](https://5ggnr.buzz/) 
+[影院最新地址一 点击此处](https://5ggnx.buzz/) 
 
-[影院最新地址二 点击此处](https://5ggno.buzz/) 
+[影院最新地址二 点击此处](https://5ggnz.buzz/) 
 
-[影院最新地址三 点击此处](https://5ggnm.buzz/) 
+[影院最新地址三 点击此处](https://5ggob.buzz/) 
 
-[影院最新地址四 点击此处](https://5ggnp.buzz/) 
+[影院最新地址四 点击此处](https://5ggnt.buzz/) 
 
-[影院最新地址五 点击此处](https://5ggnk.buzz/) 
+[影院最新地址五 点击此处](https://5ggns.buzz/) 
 
 影院提醒您请注意，永久地址一定要加https
 
